@@ -1,4 +1,5 @@
 
+
                                                           "My luck is on a roll.."
   ##       ------- ------- <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/66b55f69-2082-40ae-8121-74c26f453a03" />
                                                  I'm in a bunch of fandoms! and these are:
@@ -7,7 +8,17 @@
                                                   ETC because i can't think anymore!! D:
                                            ♦️ "THIS GAMBLER GOTTA SKEDDADLE NOW, GOODBYE!!" ♠️
   ##
+   
 
-   https://github.com/user-attachments/assets/5e0fb4cf-4de3-48c0-a48d-5084d750db3c
+  https://github.com/user-attachments/assets/291ce2ce-b94e-4e0b-81de-93c47ccf8a2a 
+
+
+
+
+
+
+ 
+
+
 
 
