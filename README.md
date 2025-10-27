@@ -1,7 +1,7 @@
 
 
                                                    "My luck is on a roll.."
-  ##       ------- ------- <img width="777" height="414" alt="image" src="https://github.com/user-attachments/assets/66b55f69-2082-40ae-8121-74c26f453a03" />
+  ##       ------- -------   <img width="777" height="414" alt="image" src="https://github.com/user-attachments/assets/66b55f69-2082-40ae-8121-74c26f453a03" />
                                                  I'm in a bunch of fandoms! and these are:
              MAY MADNESS 2012/ROBLOX ADMINS/BAD THINGS/BLOCK TALES/DOD/G&B/DANDYS WORLD/PUPI MIDNIGHT MUNCHIES/PRESSURE/WAAP
                           REGRETAVATOR/FUNKY FRIDAY/TRUD/UNDERTALE/DELTARUNE/CRK/WUWA/ZZZ/FNAF/POPPY PLAYTIME/GASA4/
